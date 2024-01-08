@@ -1,0 +1,6 @@
+![Screenshot (47)](https://github.com/singh-hub1/Web_Graphic/assets/63784168/99ad054f-0e9d-4755-8a4f-b5cc537e65be)
+![Screenshot (48)](https://github.com/singh-hub1/Web_Graphic/assets/63784168/f5afc2b4-f8fb-4639-9d3a-dcee6e1860fa)
+![Screenshot (49)](https://github.com/singh-hub1/Web_Graphic/assets/63784168/80dff925-cd1a-4088-a243-32b863a1f92a)
+![Screenshot (50)](https://github.com/singh-hub1/Web_Graphic/assets/63784168/72f2b929-c859-4b8d-ab1a-6a024204a152)
+![Screenshot (51)](https://github.com/singh-hub1/Web_Graphic/assets/63784168/f7a5226d-6331-4c2c-8f48-5cf60084a71a)
+![Screenshot (52)](https://github.com/singh-hub1/Web_Graphic/assets/63784168/35fc54cf-e47e-4672-9577-dbbfbb7adcda)
